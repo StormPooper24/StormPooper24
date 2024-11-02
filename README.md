@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @StormPooper24 (absolutely nothing)
+- 👋 Hi, I’m absolutely nothing
 - 👀 I’m interested in ... absolutely nothing
 - 🌱 I’m currently learning ... absolutely nothing
 - 💞️ I’m looking to collaborate on ... absolutely nothing
